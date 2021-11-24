@@ -22,6 +22,8 @@ A traditional stew made by marinating and braising rabbit or hare in a spiced vi
 
 1 can tomato puree    
 
+
+
 Roll pieces of meat in flour and sprinkle with salt and pepper.
 
 Fry until golden brown.
