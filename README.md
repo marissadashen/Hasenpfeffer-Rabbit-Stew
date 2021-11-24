@@ -1,5 +1,5 @@
 # Hasenpfeffer-Rabbit-Stew
-A traditional stew made by marinating and braising rabbit or hare in a spiced vinegar. This dish originated in Germany, and was very popular among my Pennsylvania Dutch ancestors. Rabbit meat is not currently very popular in the United States, but I am hoping that will change. Rabbit is one of the leanest most nutritios meats that exist. They are also easy to produce and have a very low impact on the environment.
+A traditional stew made by marinating and braising rabbit or hare in a spiced vinegar. This dish originated in Germany, and was very popular among my Pennsylvania Dutch ancestors. Rabbit meat is not currently very popular in the United States, but I am hoping that will change. Rabbit is one of the leanest most nutritious meats that exist. They are also easy to produce and have a very low impact on the environment.
 
  
 8 to 10 pieces of dressed rabbit   
